@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NatalyGustav
+- 👋 Hi, I’m Nataly
 - ✨ I recognize myself as a teacher
 - 👀 I’m interested in project management and business analysis in IT
 - 💞️ I’m crazy about the mountains and the sea, and really like people
